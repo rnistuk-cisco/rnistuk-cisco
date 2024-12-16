@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Rich Nistuk
+- 👀 I’m interested in travel, amateur radio (VA7RHN), electronics, software development (http://github.com/rnistuk)
+- 🌱 I’m currently learning Wind Energy Modeling
+- 💞️ I’m looking to collaborate on stuff
+- 📫 How to reach me: Webex
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I like cats
